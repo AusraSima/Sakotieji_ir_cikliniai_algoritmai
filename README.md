@@ -1,1 +1,0 @@
-# Sakotieji_ir_cikliniai_algoritmai
